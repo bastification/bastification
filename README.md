@@ -5,5 +5,5 @@
 
 
 
-‎‎‎ ‎ ‎‎ ‎ ‎[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/antlerqueen)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [新𝗕𝗢𝗢𝗞](https://antlerqueen.atabook.org/)
+‎‎‎ ‎ ‎‎ ‎ ‎[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/BastiGHG)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [新𝗕𝗢𝗢𝗞](https://antlerqueen.atabook.org/)
 </h4>
